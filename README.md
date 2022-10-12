@@ -1,1 +1,1 @@
-# Curriculo :construçao:
+# Curriculo :construction:
